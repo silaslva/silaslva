@@ -1,4 +1,4 @@
-# Silas dos Santos Silva
+# Silas Silva
 
 🌍 **Location:** Santa Catarina, Brazil
 
